@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **nasaarbaaz@gmail.com**
 
-- 📄 Know about my experiences [linkedin.com/in/syed-arbaaz-khurram-33914a121](linkedin.com/in/syed-arbaaz-khurram-33914a121)
+- 📄 Know about my experiences [Check out my LinkedIn](https://www.linkedin.com/in/syed-arbaaz-khurram-33914a121/)
 
 - ⚡ Fun fact **I lost 45 KGs**
 
